@@ -4,6 +4,8 @@ i currently study on UNAM and y really enjoy development ❤ and some of DEV-OPS
 
 i love video games and i like rto ride my bike,play the bass, im fan of final fantasy games,halo and, gta, and love metal music 🤘  
 
+im star wars fan and i love tolkiens histories ,im a big deagon ball fan too
+
 ![ff](https://thumbs.gfycat.com/GentleMinorCaudata-small.gif),
 
 i like TCG games and i love electronics and networking 
