@@ -9,7 +9,6 @@ i love video games and i like rto ride my bike,play the bass, im fan of final fa
 i like TCG games and i love electronics and networking 
 
 ![img1](https://lh3.googleusercontent.com/proxy/eH4XvXZGRzovznIBsLn-2i7sNp_XK2sH3GBK8fCvpZXhS4rOgOHH2ZxJZ-r9UTd79Gjqw21JaCiH0ZuiaJ1pJ1_FCcJE7XmcuawsuxRpDlSpEmDMiApbXtL1H71lEs5e8IobKu8vFw4VZUPeOGgIsfGj1n2Q2oXYzNuuO0ELJ-so)  
-![server]()
 
 --- 
 #### My tecnologies
