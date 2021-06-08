@@ -1,14 +1,7 @@
-### Hi there My name Is Ivan Lujan ✌
-Im an software fullstack fullstack engineer. i have worked as web developer for UNAM and im currently working on an LXP for Walmart.
-i currently study on UNAM and y really enjoy development ❤ and some of DEV-OPS to but focussing on development side and i love tamwork and  make friends and learn from ther experiences.   
+### 'Sup Devs ✌
 
-i love video games and i like rto ride my bike,play the bass, im fan of final fantasy games,halo and, gta, and love metal music 🤘  
 
-im star wars fan and i love tolkiens histories ,im a big deagon ball fan too
 
-![ff](https://thumbs.gfycat.com/GentleMinorCaudata-small.gif),
-
-i like TCG games and i love electronics and networking 
 
 ![img1](https://lh3.googleusercontent.com/proxy/eH4XvXZGRzovznIBsLn-2i7sNp_XK2sH3GBK8fCvpZXhS4rOgOHH2ZxJZ-r9UTd79Gjqw21JaCiH0ZuiaJ1pJ1_FCcJE7XmcuawsuxRpDlSpEmDMiApbXtL1H71lEs5e8IobKu8vFw4VZUPeOGgIsfGj1n2Q2oXYzNuuO0ELJ-so)  
 
