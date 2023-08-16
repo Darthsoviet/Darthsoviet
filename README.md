@@ -9,7 +9,6 @@
 #### My tecnologies
 
 ![springboot](https://miro.medium.com/max/256/0*Qrh5x0L5XWFRvA9P.png)
-![nodejs](https://yigitnot.com/wp-content/uploads/2016/02/node-js-logo.png)
 ![react](https://seeklogo.com/images/R/react-logo-7B3CE81517-seeklogo.com.png)
 ![golang](https://shockbyte.files.wordpress.com/2019/09/golang-logo-2.png)
 ![docker](https://d1q6f0aelx0por.cloudfront.net/product-logos/644d2f15-c5db-4731-a353-ace6235841fa-registry.png)
